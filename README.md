@@ -1,1 +1,2 @@
-# Johny34521.github.io
+# Ziemniaki
+#### Ziemniaki należy doprawić a następnie wsadzić do pikernika na 30 min. Smacznego :) 
